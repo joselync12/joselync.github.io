@@ -26,13 +26,11 @@ Exchanged and verified job-related information to provide support.
 ## Educational Background
 -B.S., Computer Science | Kean University  (_Expected year to graduate 2025_)
   
-Organizations: 
-     Ecuadorian Student Association
-     Association for Computing Machinery/Women 
+Organizations: Ecuadorian Student Association & Association for Computing Machinery/Women 
 
 
 ## Revelant College Courses
-Data Structure
+Data Structure, Computer Organization & Architecture, Fundamentals of Computer Science, Computer Programming, Computer Systems, Discrete Structures
 
 ## Skills & Interests
 Problem Solver, Java, Communication, Customer Service, Microsoft Office & PowerPoint, Writing Stories, Digital Drawing, 3D Digital Art/Model, Traditional Art 
