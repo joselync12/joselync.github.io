@@ -6,22 +6,22 @@ A computer science undergraduate with teamwork and organizational skills. Lookin
 ### Professional Experience 
 - Sortation Center Warehouse Associate | Amazon	                                           May 2023-Present
 
-•	Received and sorted inventory, making sure each package goes to the correct container and correct place.
+Received and sorted inventory, making sure each package goes to the correct container and correct place.
 
-•	Conducted the necessary actions to make sure customer orders were on time and ready to be delivered.
+Conducted the necessary actions to make sure customer orders were on time and ready to be delivered.
 
-•	Utilized the technology they provided like computers, and smartphones, managed apps, and scan bar codes.
+Utilized the technology they provided like computers, and smartphones, managed apps, and scan bar codes.
 
 
 - Cashier & Retail Sales Associate | GAP Factory Store                                    July 2020-April 2021
 
-•	Build customer experience to become experts in the brand’s selling behaviors and give them the best.
+Build customer experience to become experts in the brand’s selling behaviors and give them the best.
 
-•	Acknowledged customers, assisting them to locate merchandise using various methods and being able to answer any question they have accurately. 
+Acknowledged customers, assisting them to locate merchandise using various methods and being able to answer any question they have accurately. 
 
-•	Courteous and responsive to internal/external requests.
+Courteous and responsive to internal/external requests.
 
-•	Exchanged and verified job-related information to provide support.
+Exchanged and verified job-related information to provide support.
 
 
 ### Education Background
