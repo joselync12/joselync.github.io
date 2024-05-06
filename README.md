@@ -36,4 +36,4 @@ Computer Organization & Architecture, Fundamentals of Computer Science, Computer
 Problem Solver, Java, Communication, Customer Service, Microsoft Office & PowerPoint, Writing Stories, Digital Drawing, 3D Digital Art/Model, Traditional Art 
 
 ## Projects 
-To be added soon
+To be added soon...
